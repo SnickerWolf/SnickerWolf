@@ -2,7 +2,7 @@
 - 👀 I’m interested in modding
 - 🌱 I’m currently learning how to mod
 - 💞️ I’m looking to collaborate on modding
-- 📫 How to reach me thatjackmiller@gmail.com
+- 📫 How to reach me snickerwolfbro on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like videogames like gorilla tag
 
